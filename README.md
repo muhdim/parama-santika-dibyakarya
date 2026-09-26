@@ -1,1 +1,0 @@
-# parama-santika-dibyakarya
